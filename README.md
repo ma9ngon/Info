@@ -2,8 +2,6 @@
   - Official website: https://ma9ngon.blogspot.com/
   - Facebook ADMIN: https://www.facebook.com/adduongma
   - Zalo ADMIN: https://zalo.me/0762080898
-  - GROUP ma9ngon: https://www.facebook.com/groups/1984921911688320/
   - DISCORD: https://discord.gg/Rw8Xm8udeE
   - Github: https://github.com/ma9ngon
-  - FANPAGE BÁO LỖI,... https://www.facebook.com/gaming/duongma198
   - Youtube: https://www.youtube.com/channel/UC_mlcORdGMGhWHDouUY8ZHg
