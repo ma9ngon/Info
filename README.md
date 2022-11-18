@@ -1,3 +1,4 @@
 - THAM GIA GROUP HOẶC LIÊN HỆ ADMIN ĐỂ ĐƯỢC HỖ TRỢ
   - Official website: https://ma9ngon.blogspot.com/
   - DISCORD: https://discord.gg/Rw8Xm8udeE
+  - Telegram: https://t.me/+A-L1UZtpNm0xYWM1
