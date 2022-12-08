@@ -1,5 +1,1 @@
-- THAM GIA GROUP HOẶC LIÊN HỆ ADMIN ĐỂ ĐƯỢC HỖ TRỢ
-  - Official website: https://ma9ngon.blogspot.com/
-  - Thuê Tool, Acc Rác LMHT: https://ma9ngon.click/
-  - DISCORD: https://discord.gg/zhzNh7K4Km
-  - Telegram: https://t.me/+A-L1UZtpNm0xYWM1
+Contact me: https://linktr.ee/ma9ngon
